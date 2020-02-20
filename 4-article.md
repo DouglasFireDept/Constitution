@@ -2,7 +2,7 @@
 
 ### Section 1: Officers
 
-The officers of this department shall be a chief, an assistant chief, a first captain, a second captain, a lieutenant, a president, and a secretary-treasurer, who shall hold their respective offices until their successors are elected, together with such special officers or working committees as may be appointed or elected from time to time.
+The officers of this department shall be a chief, assistant chief, first captain, second captain, lieutenant, president, and secretary-treasurer, who shall hold their respective offices until their successors are elected, together with such special officers or working committees as may be appointed or elected from time to time.
 
 ### Section 2: Executive Committee
 

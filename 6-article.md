@@ -2,7 +2,7 @@
 
 ### Section 1: Chief
 
-It shall be the duty of the chief to take full control of the entire department at all fires, parades, disasters, or any event requiring emergency assistance from our department. To have general supervision of all fire department property, and at all times to perform such other duties as may be required of the chief by law or by the village or rural boards. In the absence of the president, the chief shall preside at the meetings.
+It shall be the duty of the chief to take full control of the entire department at all fires, parades, disasters, or any event requiring emergency assistance from our department. To have general supervision of all fire department property, and at all times to perform such other duties as may be required of the chief by law or by the village or rural boards. It shall be the duty of the chief to see a record of all fires and alarms and submit these to the State Fire Marshall and State Forestry Service. In the absence of the president, the chief shall preside at the meetings.
 
 ### Section 2: Assistant Chief
 
@@ -22,7 +22,7 @@ It shall be the duties of the president to preside at all meetings, appoint all 
 
 ### Section 6: Secretary-Treasurer
 
-It shall be the duties of the secretary to keep an accurate list of all members of the department, to call roll at all meetings, to keep minutes of the proceedings of all meetings, and to note all absenteeism. The secretary shall notify all members placed on committees, and officers elected, provided they were absent from the meeting at which they were appointed or elected, to enter upon the records the names of the officers and report to the Village Board and Rural Board the names of the elected persons as soon as possible. It shall be the duty of the secretary to see a record of all fires and alarms and submit these to the State Fire Marshall and State Forestry Service.
+It shall be the duties of the secretary to keep an accurate list of all members of the department, to call roll at all meetings, to keep minutes of the proceedings of all meetings, and to note all absenteeism. The secretary shall notify all members placed on committees, and officers elected, provided they were absent from the meeting at which they were appointed or elected, to enter upon the records the names of the officers and report to the Village Board and Rural Board the names of the elected persons as soon as possible.
 
 It shall be the duty of the treasurer to collect all monies due to the department and pay all bills when due as ordered by the chief or president. He or she shall keep an accurate account of monies received and disbursed, and shall render an accurate account of the same to the department at meetings.
 
