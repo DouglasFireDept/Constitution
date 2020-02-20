@@ -6,7 +6,7 @@ Any person eighteen (18) years of age or more who may desire to become a member 
 
 ### Section 2: Qualifications to Retain Membership
 
-Each member shall attend as many meetings as possible during the year. Any member absent from more than twenty-five percent (25%) of the regular business meetings and/or misses two (2) consecutive meetings, without an acceptable excuse to the department shall be a reason for automatic suspension from the department upon written ballot and two-thirds (2/3) agreement of the members present.
+Each member shall attend as many meetings as possible during the year. Any member absent from more than twenty-five percent (25%) of the regular business meetings, without an acceptable excuse to the department shall be a reason for suspension from the department upon written ballot and two-thirds (2/3) agreement of the members present.
 
 ### Section 3: Key and Pager
 
@@ -14,12 +14,12 @@ A key and pager upon availability shall be given to each new member after being 
 
 ### Section 4: Resignation
 
-Any member may resign from this department by a written request to the department. Any officer may resign his office in the same manner, except the secretary-treasurer, who shall give at least thirty (30) days notice. When the books are found correct, their resignation may be accepted.
+Any member may resign from this department by a written request to the department or a verbal request to an officer of the department. Any officer may resign his office in the same manner, except the secretary-treasurer, who shall give at least thirty (30) days notice. When the books are found correct, their resignation may be accepted.
 
 ### Section 5: Age 65
 
-Under present-day law, at age sixty-five (65), members insurance policy through the Village of Douglas and the Palmyra Rural Fire District, will be dropped.
+Under present-day law, at age sixty-five (65), members insurance policy through the Village of Douglas and the Palmyra Rural Fire District, will be increase in cost.
 
 ### Section 6: Dues
 
-An amount of $5.00 per member may be set for a Christmas party or a summer fire fighters picnic.
+There are no membership dues. However an amount of up to $15.00 per member may be set for social events.

@@ -1,4 +1,4 @@
 # Douglas Volunteer Fire Department Constitution & By-Laws
 
-April, 1993
-Revised
+March, 2020
+Proposed
