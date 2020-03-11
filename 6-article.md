@@ -2,11 +2,11 @@
 
 ### Section 1: Chief
 
-It shall be the duty of the chief to take full control of the entire department at all fires, parades, disasters, or any event requiring emergency assistance from our department. To have general supervision of all fire department property, and at all times to perform such other duties as may be required of the chief by law or by the village or rural boards. It shall be the duty of the chief to see a record of all fires and alarms and submit these to the State Fire Marshall and State Forestry Service. In the absence of the president, the chief shall preside at the meetings.
+It shall be the duty of the chief to take full control of the entire department at all fires, parades, disasters, or any event requiring emergency assistance from our department. To have general supervision of all fire department property, and at all times to perform such other duties as may be required of the chief by law or by the village or rural boards. It shall be the duty of the chief to see a record of all fires and alarms and submit these to the State Fire Marshall and State Forestry Service. In the absence of the president, the chief shall preside at the meetings. The chief must be Fire Fighter I certified.
 
 ### Section 2: Assistant Chief
 
-The assistant chief shall, in the absence of the chief, perform the duties of the chief.
+The assistant chief shall, in the absence of the chief, perform the duties of the chief. The assistant chief must be Fire Fighter I certified.
 
 ### Section 3: Captains
 
