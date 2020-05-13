@@ -23,3 +23,7 @@ Under present-day law, at age sixty-five (65), members insurance policy through 
 ### Section 6: Dues
 
 There are no membership dues. However an amount of up to $15.00 per member may be set for social events.
+
+### Section 7: Cadets
+
+This department offers a cadet program to youth ages 13-18. 

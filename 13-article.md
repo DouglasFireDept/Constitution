@@ -6,7 +6,7 @@ No equipment is to be taken from any truck or fire department property without s
 
 ### Section 2: Emergency Vehicles Leaving on Calls
 
-No truck is to leave for an emergency call without at least two (2) firefighters in response without the approval of an officer. One (1) firefighter per truck is acceptable.
+No emergency apparatuses may leave for an emergency call without at least two (2) firefighters in response without the approval of an officer.
 
 ### Section 3: Emergency Vehicle Passengers
 
@@ -14,4 +14,4 @@ Only fire fighters, or rescue members, are to ride fire equipment on emergency c
 
 ### Section 4: Non-Emergency Use of Equipment
 
-Fire equipment may be used for non-emergency purposes, if manned by members of the department on a volunteer basis. This pertains only to our fire district. Prior approval must be given from an officer before fire equipment may be used for such purposes.
+Fire equipment may be used for non-emergency purposes, if manned by members of the department on a volunteer basis. This pertains only to our fire district. Prior approval must be given from the chief or assistant chief before fire equipment may be used for such purposes. All equipment will be returned in the same conditions in which it was borrowed.
