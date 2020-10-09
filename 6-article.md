@@ -2,23 +2,23 @@
 
 ### Section 1: Chief
 
-It shall be the duty of the chief to take full control of the entire department at all fires, parades, disasters, or any event requiring emergency assistance from our department. To have general supervision of all fire department property, and at all times to perform such other duties as may be required of the chief by law or by the village or rural boards. It shall be the duty of the chief to see a record of all fires and alarms and submit these to the State Fire Marshall and State Forestry Service. In the absence of the president, the chief shall preside at the meetings. The chief must be Fire Fighter I certified.
+It shall be the duty of the chief to take full control of the entire department at all fires, parades, disasters, or any event requiring emergency assistance from our department. To have general supervision of all fire department property, and at all times to perform such other duties as may be required of the chief by law or by the village or rural boards. It shall be the duty of the chief to see a record of all fires and alarms and submit these to the State Fire Marshall and State Forestry Service. In the absence of the president, the chief shall preside at the meetings. The chief shall be Fire Fighter I certified.
 
 ### Section 2: Assistant Chief
 
-The assistant chief shall, in the absence of the chief, perform the duties of the chief. The assistant chief must be Fire Fighter I certified.
+The assistant chief shall, in the absence of the chief, perform the duties of the chief. The assistant chief shall be Fire Fighter I certified.
 
-### Section 3: Captains
+### Section 3: Captain(s)
 
-The duties of the captains shall be under the direction of the chief, or assistant chief, to supervise the operation of equipment at the scene of the call. In the absence of the chief and in the absence of the first captain, the second captain will perform these duties.
+The duties of the captain(s) shall be under the direction of the chief, or assistant chief, to lead fire fighters both on scene and at the station. The captain(s) are responsible for the initial strategies, personnel safety, and the overall activities of the fire fighters. The captain(s) are responsible to lead fire fighters to complete assigned objectives at the emergency scene and to supervise the operation of equipment. The captain(s) will oversee routine and preventive maintenance of all apparatus and equipment. In addition, the captain(s) will provide training to members regarding the apparatus operations and usage of equipment. The captain(s) shall be Fire Fighter I certified.
 
-### Section 4: Lieutenant
+### Section 4: Lieutenant(s)
 
-The duties of the lieutenant shall be under the direction of the captains. The lieutenant shall, in the absence of the first captain and in the absence of the second captain, perform the duties of the captains.
+The duties of the lieutenant shall be under the direction of the captain(s) to assist them in their duties. 
 
 ### Section 5: Safety Officer
 
-It shall be the duties of the safety officer to  manage the risks that fire fighters take at emergencies. The safety officer must be EMS certified.
+It shall be the duties of the safety officer to manage the risks and watch for unsafe practices at emergency or training events. The safety officer has the authority to halt any unsafe firefighting activity. The safety officer shall maintain current an EMS certification.
 
 ### Section 6: President
 
@@ -32,13 +32,11 @@ It shall be the duty of the treasurer to collect all monies due to the departmen
 
 ### Section 8: Training Officer
 
-The training officer is to provide training at designated meetings. The training officer shall appoint an assistant in training. The training officer may provide training at the home station and provide a topic of interest for Otoe Country Mutual Aid meetings held in Douglas. The training officer shall keep accurate records of members receiving training.
-
-The training officer and the assistant will provide basic fire fighter training for each new member within three (3) months of the starting date of the new member. Basic training will include but not be limited to; driving emergency vehicles, proper donning of protective gear, minimum preventative maintenance of vehicles and of equipment, inspection for serviceability of equipment, and basic emergency communication.
+The training officer is responsible for updating the training of current fire fighters and for training new fire fighters. Maintaining accurate training records shall be the responsibility of the training officer. The training officer is responsible for providing and schedule all training events. The New Member Training Program shall be developed, maintained, and overseen by the training officer. The training officer may appoint an assistant. The Training Officer shall be Fire Fighter I certified.
 
 ### Section 9: Executive Committee
 
-The executive committee shall consist of the president of the department, the assistant chief, and the first captain. The president shall serve as the chairman and secretary and shall perform the usual duties incumbent upon such officers. The executive committee shall perform such other duties as may here-in-after be prescribed for in the constitution and by-laws. It shall be the duty of the executive committee to screen all membership applications, to act as a grievance committee after following the chain of command, and to perform a quarterly audit on all expenditures. An alternate executive committee member may be appointed if a grievance involves a member of the executive committee.
+The executive committee shall consist of the president of the department, the assistant chief, and an appointed captain. The president shall serve as the chairman and secretary and shall perform the usual duties incumbent upon such officers. The executive committee shall perform such other duties as may here-in-after be prescribed for in the constitution and by-laws. It shall be the duty of the executive committee to screen all membership applications, to act as a grievance committee after following the chain of command, and to perform a quarterly audit on all expenditures. An alternate executive committee member may be appointed if a grievance involves a member of the executive committee.
 
 ### Section 10: Trustees
 
