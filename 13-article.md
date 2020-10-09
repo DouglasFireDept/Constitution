@@ -10,7 +10,7 @@ No emergency apparatuses may leave for an emergency call without at least two (2
 
 ### Section 3: Emergency Vehicle Passengers
 
-Only fire fighters, or rescue members, are to ride fire equipment on emergency calls, without permission of an officer. During any other situation, permission of the fire chief or assistant chief is required for any non-fire fighter person to ride on or in trucks or other equipment.
+Only fire fighters, or rescue members, are to ride fire equipment on emergency calls without permission of an officer. During any other situation, permission of the fire chief or assistant chief is required for any non-fire fighter person to ride on or in trucks or other equipment.
 
 ### Section 4: Non-Emergency Use of Equipment
 
