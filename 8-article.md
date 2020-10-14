@@ -8,14 +8,14 @@ Upon hearing the alarm of fire, each member shall go to the fire station in the 
 
 Successful demonstration of operational competency must be shown to an officer of this department before a fire fighter may operate or drive fire equipment or apparatuses without supervision. Fire fighters not meeting minimum qualifications of training shall be restricted in duties accordingly.
 
-### Section 4: False Alarms
+### Section 3: False Alarms
 
 Any member being guilty of willingly raising a false alarm of fire, or rescue, or assisting in any way what-so-ever in raising such alarm, shall be expelled at the discretion of this department.
 
-### Section 5: Expenses of Fire Fighters
+### Section 4: Expenses of Fire Fighters
 
 All department approved or required training will be paid for or reimbursement will be given by this department or the Palmyra Rural Fire District. Each member must take care of his or her own personal expenses, equipment, vehicles, etc., except that which is covered by the insurance policy held by the Village of Douglas or Palmyra Rural Fire District.
 
-### Section 6: Red Light Permit
+### Section 5: Red Light Permit
 
 Red light permits may be issue at the discretion of the fire chief and Otoe County Sheriff in accordance with Nebraska State Statute 60-6,233. All red light permits expire annually on December 31 according to state statute and a new application must be submitted for the following year. Any abused of the red light permit will be reason for immediate revocation of said permit by the fire chief and disciplinary actions may be taken. Minimum age requirement to apply for the red light permit is at the discretion of the current fire chief.
