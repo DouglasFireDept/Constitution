@@ -14,7 +14,7 @@ A pager, upon availability, shall be given to each new member after being voted 
 
 ### Section 4: Resignation
 
-Any member may resign from this department by a written request to the department or a verbal request to an officer of the department. Any officer may resign his office in the same manner, except the secretary-treasurer, who shall give at least thirty (30) days notice. When the books are found correct, the secretary-treasurer’s resignation may be accepted.
+Any member may resign from this department by a written request to the department or a verbal request to an officer of the department. Any officer may resign his or her office in the same manner, except the secretary-treasurer, who shall give at least thirty (30) days notice. When the books are found correct, the secretary-treasurer’s resignation may be accepted.
 
 ### Section 5: Probationary Period
 
@@ -22,7 +22,7 @@ New members shall complete a minimum of a six (6) month probationary period. Dur
 
 ### Section 6: Voting Rights
 
-Voting rights are reserved for members who have completed the probationary period. 
+Voting rights are reserved for members who have completed the probationary period. Cadets do not have voting rights.
 
 ### Section 7: Age 65
 
@@ -34,4 +34,4 @@ There are no membership dues. However, an amount of up to $15.00 per member may 
 
 ### Section 9: Cadets
 
-This department offers a cadet program to youth ages 13-18. Cadets do not have voting rights. 
+This department offers a cadet program to youth ages 13-18.

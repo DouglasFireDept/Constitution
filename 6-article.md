@@ -8,13 +8,13 @@ It shall be the duty of the chief to take full control of the entire department 
 
 The assistant chief shall, in the absence of the chief, perform the duties of the chief. The assistant chief shall be Fire Fighter I certified.
 
-### Section 3: Captain(s)
+### Section 3: Captain
 
-The duties of the captain(s) shall be under the direction of the chief, or assistant chief, to lead fire fighters both on scene and at the station. The captain(s) are responsible for the initial strategies, personnel safety, and the overall activities of the fire fighters. The captain(s) are responsible to lead fire fighters to complete assigned objectives at the emergency scene and to supervise the operation of equipment. The captain(s) will oversee routine and preventive maintenance of all apparatus and equipment. In addition, the captain(s) will provide training to members regarding the apparatus operations and usage of equipment. The captain(s) shall be Fire Fighter I certified.
+The duties of the captain shall be under the direction of the chief, or assistant chief, to lead fire fighters both on scene and at the station. The captain is responsible for the initial strategies, personnel safety, and the overall activities of the fire fighters. The captain is responsible to lead fire fighters to complete assigned objectives at the emergency scene and to supervise the operation of equipment. The captain will oversee routine and preventive maintenance of all apparatus and equipment. In addition, the captain will provide training to members regarding the apparatus operations and usage of equipment. The captain shall be Fire Fighter I certified.
 
-### Section 4: Lieutenant(s)
+### Section 4: Lieutenant
 
-The duties of the lieutenant shall be under the direction of the captain(s) to assist them in their duties. 
+The duties of the lieutenant shall be under the direction of the captain to assist in his or her duties. 
 
 ### Section 5: Safety Officer
 
@@ -36,7 +36,7 @@ The training officer is responsible for updating the training of current fire fi
 
 ### Section 9: Executive Committee
 
-The executive committee shall consist of the president of the department, the assistant chief, and an appointed captain. The president shall serve as the chairman and secretary and shall perform the usual duties incumbent upon such officers. The executive committee shall perform such other duties as may here-in-after be prescribed for in the constitution and by-laws. It shall be the duty of the executive committee to screen all membership applications, to act as a grievance committee after following the chain of command, and to perform a quarterly audit on all expenditures. An alternate executive committee member may be appointed if a grievance involves a member of the executive committee.
+The executive committee shall consist of the president of the department, the assistant chief, and the captain. The president shall serve as the chairman and secretary and shall perform the usual duties incumbent upon such officers. The executive committee shall perform such other duties as may here-in-after be prescribed for in the constitution and by-laws. It shall be the duty of the executive committee to screen all membership applications, to act as a grievance committee after following the chain of command, and to perform a quarterly audit on all expenditures. An alternate executive committee member may be appointed if a grievance involves a member of the executive committee.
 
 ### Section 10: Trustees
 
