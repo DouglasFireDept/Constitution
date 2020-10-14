@@ -30,7 +30,7 @@ Under present-day law, at age sixty-five (65), members insurance policy through 
 
 ### Section 8: Dues
 
-There are no membership dues. However an amount of up to $15.00 per member may be set for social events.
+There are no membership dues. However, an amount of up to $15.00 per member may be set for social events.
 
 ### Section 9: Cadets
 
