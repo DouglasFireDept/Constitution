@@ -10,7 +10,7 @@ Each member shall attend as many meetings as possible during the year. Any membe
 
 ### Section 3: Key and Pager
 
-A pager, upon availability, shall be given to each new member after being voted in. A key will provided upon completion of the probationary period. Upon the resignation of any member or dismissal of any member, the key and pager shall be returned to an active Douglas fire fighter. Persons not returning pager, or abuse of such pager, shall be responsible for the cost of the pager.
+A pager, upon availability, shall be given to each new member after being voted in. A key will be provided upon completion of the probationary period. Upon the resignation of any member or dismissal of any member, the key and pager shall be returned to an active Douglas fire fighter. Persons not returning pager, or abuse of such pager, shall be responsible for the cost of the pager.
 
 ### Section 4: Resignation
 
