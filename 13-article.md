@@ -14,4 +14,4 @@ Only fire fighters, or rescue members, are to ride fire equipment on emergency c
 
 ### Section 4: Non-Emergency Use of Equipment
 
-Fire equipment may be used for non-emergency purposes, if manned by members of the department on a volunteer basis. This pertains only to our fire district. Prior approval must be given from the chief or assistant chief before fire equipment may be used for such purposes. All equipment will be returned in the same conditions in which it was borrowed.
+Fire equipment may be used for non-emergency purposes, if manned by members of the department on a volunteer basis. This pertains only to our fire district. Prior approval must be given from the chief or assistant chief before fire equipment may be used for such purposes. The chief or assistant chief is responsible to obtain any necessary authorization from the Palmyra Rural Fire District. All equipment will be returned in the same conditions in which it was borrowed.

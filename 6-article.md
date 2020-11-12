@@ -2,19 +2,19 @@
 
 ### Section 1: Chief
 
-It shall be the duty of the chief to take full control of the entire department at all fires, parades, disasters, or any event requiring emergency assistance from our department. To have general supervision of all fire department property, and at all times to perform such other duties as may be required of the chief by law or by the village or rural boards. It shall be the duty of the chief to see a record of all fires and alarms and submit these to the State Fire Marshall and State Forestry Service. In the absence of the president, the chief shall preside at the meetings. The chief shall be Fire Fighter I certified.
+It shall be the duty of the chief to take full control of the entire department at all fires, parades, disasters, or any event requiring emergency assistance from our department. To have general supervision of all fire department property, and at all times to perform such other duties as may be required of the chief by law or by the village or rural boards. It shall be the duty of the chief to see a record of all fires and alarms and submit these to the State Fire Marshall and State Forestry Service. In the absence of the president, the chief shall preside at the meetings. The chief shall review and approve the New Member Training Program and Equipment Orientation Program. The chief shall be Fire Fighter I certified and have completed IS-100, IS-200, IS-700 and IS-800. 
 
 ### Section 2: Assistant Chief
 
-The assistant chief shall, in the absence of the chief, perform the duties of the chief. The assistant chief shall be Fire Fighter I certified.
+The assistant chief shall, in the absence of the chief, perform the duties of the chief. The assistant chief shall be Fire Fighter I certified and have completed IS-100, IS-200, IS-700 and IS-800.
 
 ### Section 3: Captain
 
-The duties of the captain shall be under the direction of the chief, or assistant chief, to lead fire fighters both on scene and at the station. The captain is responsible for the initial strategies, personnel safety, and the overall activities of the fire fighters. The captain is responsible to lead fire fighters to complete assigned objectives at the emergency scene and to supervise the operation of equipment. The captain will oversee routine and preventive maintenance of all apparatus and equipment. In addition, the captain will provide training to members regarding the apparatus operations and usage of equipment. The captain shall be Fire Fighter I certified.
+The duties of the captain shall be under the direction of the chief, or assistant chief, to lead fire fighters both on scene and at the station. The captain is responsible for the initial strategies, personnel safety, and the overall activities of the fire fighters. The captain is responsible to lead fire fighters to complete assigned objectives at the emergency scene and to supervise the operation of equipment. The captain will oversee routine and preventive maintenance of all apparatus and equipment. In addition, the captain will provide training to members regarding the apparatus operations and usage of equipment. The captain shall be Fire Fighter I certified and have completed IS-100, IS-200, IS-700.
 
 ### Section 4: Lieutenant
 
-The duties of the lieutenant shall be under the direction of the captain to assist in his or her duties. 
+The duties of the lieutenant shall be under the direction of the captain to assist in his or her duties. The lieutenant shall have completed IS-100, IS-200, IS-700 within two months of being elected as lieutenant. 
 
 ### Section 5: Safety Officer
 
@@ -32,7 +32,7 @@ It shall be the duty of the treasurer to collect all monies due to the departmen
 
 ### Section 8: Training Officer
 
-The training officer is responsible for updating the training of current fire fighters and for training new fire fighters. Maintaining accurate training records shall be the responsibility of the training officer. The training officer is responsible for providing and schedule all training events. The New Member Training Program shall be developed, maintained, and overseen by the training officer. The training officer may appoint an assistant. The Training Officer shall be Fire Fighter I certified.
+The training officer is responsible for updating the training of current fire fighters and for training new fire fighters. Maintaining accurate training records shall be the responsibility of the training officer. The training officer is responsible for providing and schedule all training events. The New Member Training Program and Equipment Orientation Program shall be developed, maintained, and overseen by the training officer. The training officer may appoint an assistant. The Training Officer shall be Fire Fighter I certified.
 
 ### Section 9: Executive Committee
 
