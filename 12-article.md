@@ -2,7 +2,7 @@
 
 ### Section 1: Acceptable Excuses
 
-Sufficient excuse of non-attendance includes but is not limited to the sickness of the member or in the member’s family, indispensable business, member’s vocation, vacation, or fire related training. A text message, email, or oral excuse must be presented in advance to an officer of the department for the meeting that will be missed. That officer must then tell the secretary-treasurer so accurate records can be made.
+Sufficient excuse of non-attendance includes but is not limited to the sickness of the member or in the member’s family, indispensable business, vocation, vacation, or fire related training. A text message, email, or oral excuse must be presented in advance of the meeting to be missed. Such excuse shall be made to an officer of the department. That officer must then tell the secretary-treasurer so accurate records can be made.
 
 ### Section 2: Leave of Absence
 

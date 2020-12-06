@@ -18,7 +18,7 @@ The duties of the lieutenant shall be under the direction of the captain to assi
 
 ### Section 5: Safety Officer
 
-It shall be the duties of the safety officer to manage the risks and watch for unsafe practices at emergency or training events. The safety officer has the authority to halt any unsafe firefighting activity. The safety officer shall maintain current an EMS certification.
+It shall be the duties of the safety officer to manage the risks and watch for unsafe practices at emergency or training events. The safety officer has the authority to halt any unsafe firefighting activity. The safety officer shall maintain a current EMS certification.
 
 ### Section 6: President
 
