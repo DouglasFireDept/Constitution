@@ -34,4 +34,4 @@ There are no membership dues. However, an amount of up to $15.00 per member may 
 
 ### Section 9: Cadets
 
-This department offers a cadet program to youth ages 13-18.
+This department offers a cadet program to youth from age 13 until age 18.
