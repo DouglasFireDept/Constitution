@@ -26,7 +26,7 @@ Voting rights are reserved for members who have completed the probationary perio
 
 ### Section 7: Age 65
 
-Under present-day law, at age sixty-five (65), members insurance policy through the Village of Douglas and the Palmyra Rural Fire District, will be increase in cost.
+Under present-day law, at age sixty-five (65), members insurance policy through the Village of Douglas and the Palmyra Rural Fire District, will increase in cost.
 
 ### Section 8: Dues
 
