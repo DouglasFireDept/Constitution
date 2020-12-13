@@ -14,7 +14,7 @@ The duties of the captain shall be under the direction of the chief, or assistan
 
 ### Section 4: Lieutenant
 
-The duties of the lieutenant shall be under the direction of the captain to assist in his or her duties. The lieutenant shall have completed IS-100, IS-200, IS-700 within two months of being elected as lieutenant. 
+The duties of the lieutenant shall be under the direction of the captain to assist in his or her duties. The lieutenant shall have completed IS-100, IS-200, IS-700 within two (2) months of being elected as lieutenant. 
 
 ### Section 5: Safety Officer
 
