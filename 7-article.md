@@ -18,7 +18,7 @@ Any member may resign from this department by a written request to the departmen
 
 ### Section 5: Probationary Period
 
-New members shall complete a minimum of a six (6) month probationary period. During this period the new member shall attend all monthly meetings and periodic maintenance (PM). Any necessary absences will follow Article XII Section 1. New members shall complete the New Member Training Program and Equipment Orientation Program during the probationary period under the direction of the training officer within the first year of membership. Completion of the New Member Training Program may be waived if the new member is Fire Fighter I certified prior to joining this department or completes Fire Fighter I during probationary period. A sponsor will be assigned to the new member for the duration of the probationary period.
+New members shall complete a minimum of a six (6) month probationary period. During this period the new member shall attend all monthly meetings and periodic maintenance (PM). Any necessary absences will follow Article XII Section 1. New members shall complete the New Member Training Program and Equipment Orientation Program during the probationary period under the direction of the training officer within the first year of membership. Completion of the New Member Training Program may be waived if the new member has obtained the Fire Fighter I certification prior to joining this department or completes the Fire Fighter I certification during probationary period. A sponsor will be assigned to the new member for the duration of the probationary period.
 
 ### Section 6: Voting Rights
 
