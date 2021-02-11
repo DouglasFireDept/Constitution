@@ -1,4 +1,4 @@
 # Douglas Volunteer Fire Department Constitution & By-Laws
 
-January 13, 2021 — Corrected Version
+February 10, 2021
 ---- 
